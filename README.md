@@ -1,1 +1,1 @@
-https://wishdrivensi.github.io/superiorintelligence/
+https://wishdrivensi.github.io/si/
